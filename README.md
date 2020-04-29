@@ -1,0 +1,2 @@
+# https-www.fortunebusinessinsights.com-insulation-market-102423
+Insulation Market Size, Share &amp; Industry Analysis, By Material (Mineral Wools {Glass Wool, Stone Wool}, Foamed Plastics {Expanded Polystyrene [EPS], Extruded Polystyrene [XPS], Polyurethane [PU], Polyisocyanurate [PIR], Others}, Cellulose, Aerogels, Others), By Application (HVAC &amp; OEM, Transportation, Packaging, Building &amp; Construction, Others), and Regional Forecast, 2019-2026
